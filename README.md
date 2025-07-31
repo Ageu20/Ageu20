@@ -31,7 +31,7 @@ Meu objetivo é atuar como **analista de dados**, contribuindo para decisões or
 ---
 
 ## 📬 Contato  
-📎 [LinkedIn](https://www.linkedin.com/in/ageu-aniceto/)  
+📎 [LinkedIn](https://www.linkedin.com/in/ageu-filipe/)  
 📧 ageuufrpe@gmail.com  
 📱 +55 (11) 95330-6253
 
